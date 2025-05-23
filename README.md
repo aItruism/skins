@@ -1,7 +1,7 @@
 [altruism](https://osu.ppy.sh/users/29371923) skins
 
 altruism
-[![image](https://github.com/user-attachments/assets/a14f83de-097e-4175-ab59-19efb49123ed)](https://altruism.s-ul.eu/Bd6DM2Jk)
+[![image](https://github.com/user-attachments/assets/9e45c7d5-6e79-43f2-a90c-a0d33e46fefc)](https://altruism.s-ul.eu/cAcmTl7X)
 
 NieR
 [![image (1)](https://github.com/user-attachments/assets/9010e369-e239-42d1-a584-58dea9966b06)](https://altruism.s-ul.eu/hRShofHK)
