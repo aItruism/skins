@@ -1,6 +1,6 @@
 SKINS
 
-[osu](https://osu.ppy.sh/users/29371923) 
+[osu profile](https://osu.ppy.sh/users/29371923) 
 [twitter](https://x.com/altrruism)
 
 
