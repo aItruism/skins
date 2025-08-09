@@ -9,4 +9,5 @@ Replicant
 ](https://altruism.s-ul.eu/6HkcK549)
 
 NieR
-[![image (1)](https://github.com/user-attachments/assets/9010e369-e239-42d1-a584-58dea9966b06)](https://altruism.s-ul.eu/hRShofHK)
+[![image (1)](https://github.com/user-attachments/assets/9010e369-e239-42d1-a584-58dea9966b06)![screenshot019](https://github.com/user-attachments/assets/3f330185-3cf0-4b7e-b71c-58b7269b4816)](https://altruism.s-ul.eu/hRShofHK)
+
