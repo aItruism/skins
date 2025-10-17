@@ -3,7 +3,7 @@
 [osu profile](https://osu.ppy.sh/users/29371923) 
 [twitter](https://x.com/altrruism)
 
-(click on an image to download)
+(click image to download)
 
 **altruism**
 [![image](https://github.com/user-attachments/assets/1ad51a04-7730-447a-ba33-877b0b806134)![screenshot](https://github.com/user-attachments/assets/c0bfe617-66cc-4ea1-9dda-e7dddaee91c0)](https://altruism.s-ul.eu/lYpjLMJw)
