@@ -15,4 +15,4 @@
 [![image](https://github.com/user-attachments/assets/760ee046-8deb-42c5-9915-5d2550527731)![screenshot](https://github.com/user-attachments/assets/909eb9af-43b9-461e-98ab-784a9da01003)](https://altruism.s-ul.eu/MFQartYI)
 
 **oyasumi**
-[![image](https://github.com/user-attachments/assets/329895be-66bf-42bc-9ba2-02c12ab47cc7)![screenshot](https://github.com/user-attachments/assets/1ce58a52-72b7-44b3-b9f6-bb83242d7539)](https://altruism.s-ul.eu/1yGvyUvt)
+[![image](https://github.com/user-attachments/assets/329895be-66bf-42bc-9ba2-02c12ab47cc7)![screenshot](https://github.com/user-attachments/assets/3105806b-343a-489d-8257-a9ac70fc71fb)](https://altruism.s-ul.eu/1yGvyUvt)
