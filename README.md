@@ -21,4 +21,4 @@
 [![image](https://github.com/user-attachments/assets/2ab13e44-1d9c-4163-b527-a87b90b84e5c)![screenshot](https://github.com/user-attachments/assets/548361dc-787d-4ef0-b9e9-c768e20d3068)](https://altruism.s-ul.eu/RBCrv9HG)
 
 **soul** (main skin w soul eater ui)
-[![image](https://github.com/user-attachments/assets/666167dc-edd9-4461-bb69-f2d6e8c70a0d)![screenshot](https://github.com/user-attachments/assets/3727978a-7d34-4269-b2d4-e608ecab1835)](https://altruism.s-ul.eu/2sN76E0I)
+[![image](https://github.com/user-attachments/assets/8b50da6b-e470-4f16-83f4-c86724580021)![screenshot](https://github.com/user-attachments/assets/3727978a-7d34-4269-b2d4-e608ecab1835)](https://altruism.s-ul.eu/LaEKc2Ub)
