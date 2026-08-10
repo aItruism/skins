@@ -5,6 +5,9 @@
 
 (click image to download)
 
+**altruism v1**
+[![image](https://github.com/user-attachments/assets/d9f37f3e-001c-4815-ad1b-06a5d5ffeef3)![screenshot](https://github.com/user-attachments/assets/0d46a542-5e93-4a31-ab79-64951f3129c8)](https://altruism.s-ul.eu/uQvvBpmN)
+
 **altruism_ietherial**
 [![image](https://github.com/user-attachments/assets/56a4fe5d-ac46-47a5-82f2-a315193cd062)![screenshot](https://github.com/user-attachments/assets/97e4511b-26c6-4ee8-8007-408674819ccc)](https://altruism.s-ul.eu/6nF2iJc6)
 
