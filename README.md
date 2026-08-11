@@ -6,7 +6,7 @@
 (click image to download)
 
 **altruism v1**
-[![image](https://github.com/user-attachments/assets/ca6946d3-d4be-4a3d-bd01-1a5acadd60db)![screenshot](https://github.com/user-attachments/assets/aa6880bd-604b-4887-84c4-6fee04e6479a)](https://altruism.s-ul.eu/sycUXDQE)
+[![image](https://github.com/user-attachments/assets/ca6946d3-d4be-4a3d-bd01-1a5acadd60db)![screenshot](https://github.com/user-attachments/assets/aa6880bd-604b-4887-84c4-6fee04e6479a)](https://altruism.s-ul.eu/w84Uz3hr)
 
 **altruism_ietherial**
 [![image](https://github.com/user-attachments/assets/56a4fe5d-ac46-47a5-82f2-a315193cd062)![screenshot](https://github.com/user-attachments/assets/97e4511b-26c6-4ee8-8007-408674819ccc)](https://altruism.s-ul.eu/6nF2iJc6)
